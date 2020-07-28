@@ -2,7 +2,7 @@
 Red Velvet Cake
 
 Flour - 1 Cup
-Shugar - 1/2 Cup
+Sugar - 1/2 Cup
 Coco powder - 1/4 Cup
 Baking powder - 1/4 tsp
 Baking soda - 1/4 tsp
